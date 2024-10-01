@@ -1,4 +1,6 @@
-![1000032708](https://github.com/user-attachments/assets/60bb5e06-032d-4855-a3fc-5ee157468ea7)
+![1000032708](https://github![video-thumbnail](https://github.com/user-attachments/assets/b50a2058-3361-4add-83ce-2064c6c865b7)
+.com/user-attachments/assets/60bb![___cm aptoide pt provider_external_files_Android_data_cm aptoide pt_files_Pictures_aptoide_image_20240923_2218208436518859091476758](https://github.com/user-attachments/assets/2fe36872-10f6-4618-b114-833711213fd0)
+5e06-032d-4855-a3fc-5ee157468ea7)
 ## Hi there 👋
 
 <!--
